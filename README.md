@@ -1,5 +1,5 @@
-# KOSMOS
-Reupload of KOSMOS, author gave permission when he left the forums
+# KOSMOS SSPP
+Reupload of KOSMOS SSPP, author gave permission when he left the forums
 
 Forum Thread: http://forum.kerbalspaceprogram.com/index.php?/topic/89422-kosmos-3142015-rd-170-family-released/&page=1
 
